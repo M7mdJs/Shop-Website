@@ -39,8 +39,7 @@ In summary, this e-commerce platform, developed by iishadow, delivers a feature-
 
 Connect with me on various social media platforms:
 
-- [Instagram](https://www.instagram.com/mohamed_gamer_38/)
-- [Threads](https://www.threads.net/@mohamed_gamer_38)
+- [Instagram](https://www.instagram.com/m7md_js2/)
 - [Discord](https://discord.com/users/1091118468155314306)
 
 Feel free to follow, connect, or reach out to me through these platforms.
